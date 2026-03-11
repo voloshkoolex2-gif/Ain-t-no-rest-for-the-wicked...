@@ -1,4 +1,4 @@
-# Ain-t-no-rest-for-the-wicked..
+# Ain-t-no-rest-for-the-wicked
 
 # Hi, I'm Oleksii 👋
 
